@@ -6,6 +6,6 @@
 
 [linkedin](https://linkedin.com/MaryamTavana)
 [instagram](https://instagram.com/maryamtavana.__)
-[telegram](https://telegram.com/maryamtavana00)
+[telegram](https://t.me/maryamtavana00)
 
 
