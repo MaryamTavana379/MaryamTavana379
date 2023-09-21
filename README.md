@@ -1,8 +1,8 @@
-# Hi there 👋. I'm Maryam Tavana. 
+# Hi there 👋. I'm Maryam Tavana. :innocent: 
 
-## I’m currently working on Pinoox company as front-end developer and learning Vuejs framework.
+## I’m currently working on Pinoox company as front-end developer :woman_technologist: and learning Vuejs framework.  :smiling_face_with_three_hearts:
 
-### You can connect with me on the following social networks :
+### You can connect with me on the following social networks : :speech_balloon:
 
 [linkedin](https://linkedin.com/MaryamTavana)
 [instagram](https://instagram.com/maryamtavana.__)
