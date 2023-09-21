@@ -4,8 +4,8 @@
 
 ### You can connect with me on the following social networks :
 
-[linkedin](MaryamTavana)
-[instagram](maryamtavana.__)
-[telegram](maryamtavana00)
+[linkedin](https://linkedin.com/MaryamTavana)
+[instagram](https://instagram.com/maryamtavana.__)
+[telegram](https://telegram.com/maryamtavana00)
 
 
