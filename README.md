@@ -5,7 +5,7 @@
 ### You can connect with me on the following social networks : :speech_balloon:
 
 
-[Instagram](https://instagram.com/maryamtavana.__)
+[LinkedIn](https://www.linkedin.com/in/maryam-tavana/)
 [Telegram](https://t.me/maryamtavana00)
-
+[Instagram](https://instagram.com/maryamtavana.__)
 
